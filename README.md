@@ -6,6 +6,7 @@
 ![alt-текст](https://pp.userapi.com/c844320/v844320684/20e2a/ctOjE4ri1xg.jpg)
 
 #### Задание 2
+![alt-текст](https://pp.userapi.com/c841630/v841630347/5377e/Ko4cx0_pdfc.jpg)
 
 
 #### Задание 3
